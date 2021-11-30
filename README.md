@@ -1,2 +1,1 @@
-# akashrajshrma
-My Personal Blog
+Hello👋I'm Akash Raj Sharma
